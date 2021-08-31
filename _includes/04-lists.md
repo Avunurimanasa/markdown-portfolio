@@ -1,3 +1,3 @@
--My favourite thing is to travel different places.
--Favourite food is Biryani.
--Watching Movies
+- My favourite thing is to travel different places.
+- Favourite food is Biryani.
+- Watching Movies
