@@ -1,0 +1,3 @@
+- My favourite thing is to travel different places.
+- Favourite food is Biryani.
+- Playing badminton
