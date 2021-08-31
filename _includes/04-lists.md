@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+My favourite thing is to travel different places.
